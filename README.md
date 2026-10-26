@@ -1,1 +1,0 @@
-# moja-galeria-zdjec
